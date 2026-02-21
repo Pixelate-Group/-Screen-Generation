@@ -1,3 +1,3 @@
-# -Screen-Generation
+# [-Screen-Generation](https://drive.google.com/drive/folders/1fe42nKO0ELcMs5N3JfAIh14LTGQUnR05?usp=drive_link)
 مشروع «جيل الشاشة» يوثّق كيف غيّرت السوشيال ميديا طريقة شعورنا وتواصلنا، ويرصد الصراع بين الواقع والعالم الرقمي وتأثيره على التعاطف والعلاقات، لطرح سؤال جوهري: هل نعيش مشاعرنا بصدق أم نكتفي بعرضها؟ رحلة بصرية وإنسانية لفهم الإنسان في عصر الشاشات.
-https://drive.google.com/drive/folders/1fe42nKO0ELcMs5N3JfAIh14LTGQUnR05?usp=drive_link
+
