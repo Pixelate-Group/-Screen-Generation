@@ -2,11 +2,11 @@
 مشروع «جيل الشاشة» يوثّق كيف غيّرت السوشيال ميديا طريقة شعورنا وتواصلنا، ويرصد الصراع بين الواقع والعالم الرقمي وتأثيره على التعاطف والعلاقات، لطرح سؤال جوهري: هل نعيش مشاعرنا بصدق أم نكتفي بعرضها؟ رحلة بصرية وإنسانية لفهم الإنسان في عصر الشاشات.
 
 وصف وفكره المشروع
-# (https://drive.google.com/file/d/1ppYy1sCPEpAkSglP0LY3AOkc89PNyLUk/view?usp=drive_link)
+# ([https://drive.google.com/file/d/1ppYy1sCPEpAkSglP0LY3AOkc89PNyLUk/view?usp=drive_link](https://drive.google.com/file/d/1xXMZ3OJpCuYPxeSCDSz9GpyyCoOSEYLq/view?usp=drive_link)
 
 فريق العمل بالمشروع 
 
-# (https://drive.google.com/drive/folders/16qWnvpE1gioqSa8Ve5hdqcvT5Q0Wzoc5?usp=drive_link)
+# ([https://drive.google.com/drive/folders/16qWnvpE1gioqSa8Ve5hdqcvT5Q0Wzoc5?usp=drive_link](https://drive.google.com/file/d/1iMNdMF5dDOdYqvaTUtMSYAVWRYnn39Uq/view?usp=drive_link)
 
 Project Folders
 
