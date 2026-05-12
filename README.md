@@ -22,7 +22,8 @@ Final Project
 
 Presentation
 
-#(https://docs.google.com/presentation/d/1hRHdwtJDwtH6vXjk1ybz69TkIoCw7ofB/edit?usp=drivesdk&ouid=105124137750514480094&rtpof=true&sd=true) 
+# (https://docs.google.com/presentation/d/1g_2Hjg5I6mQHOsT6ZgNZ3uCPnyOw3D0I/edit?usp=drive_link&ouid=109753041779510851011&rtpof=true&sd=true)
+#(https://drive.google.com/file/d/10yrMIScCbI1eZxzf-TcRlrReUVIaq6lf/view?usp=drive_link)
 
 Reels 
 
